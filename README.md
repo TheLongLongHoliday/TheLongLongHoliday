@@ -15,6 +15,20 @@
 </p>
 
 <p align="center">
+  <i>········· ♡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ ♡ ·········</i>
+</p>
+<br></br>
+<details align="center">
+<summary>$${\color{yellow}current} $$ $${\color{yellow}hyperfixations} $$</summary>
+
+ʜᴇᴛᴀʟɪᴀ • ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ • ʙʙᴄ ɢʜᴏꜱᴛꜱ • ɴᴀᴘᴏʟᴇᴏɴ • ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
+
+</details>
+<p align="center">
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+</p>
+
+<p align="center">
   <br><br>
   $${\color{orange} dni:} $$ ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ/ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ (ᴜꜱᴜᴋ/ꜱᴘᴀᴍᴀɴᴏ ɪɴᴄʟᴜᴅᴇᴅ) ┆ ʀᴀᴄɪꜱᴛꜱ ┆ ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ/ʜᴏᴍᴏᴘʜᴏʙᴇꜱ ┆ ᴛʀᴜᴍᴘɪᴇꜱ
 </p>
