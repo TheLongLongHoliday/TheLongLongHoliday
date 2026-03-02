@@ -11,7 +11,7 @@
 
 <p align="center">
   <a href="https://kuna.atabook.org/">→ kuna.atabook.org</a> 　✦　<a href="https://kuna2.straw.page/">→ kuna2.straw.page</a><br>
-  <a href="https://kunakunakuna.straw.page/">→ kunakunakuna.straw.page</a> 　✦　<a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">→ color my tree pls ♡</a>
+  <a href="https://kunakunakuna.straw.page/">→ kunakunakuna.straw.page</a> 　✦　<a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">→ colour my tree pls ♡</a>
 </p>
 
 <p align="center">
