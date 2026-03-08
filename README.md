@@ -10,8 +10,9 @@
 </p>
 
 <p align="center">
-  <a href="https://kuna.atabook.org/">→ kuna.atabook.org</a> 　✦　<a href="https://kuna2.straw.page/">→ kuna2.straw.page</a><br>
-  <a href="https://kunakunakuna.straw.page/">→ (old) strawpage</a> 　✦　<a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">→ colour my tree ♡</a>
+  <a href="https://kuna.atabook.org/">→ kuna.atabook.org</a> 　✦　<a href="https://kunaland.straw.page">→ (MAIN) kunaland.straw.page</a><br>
+  <a href="https://kuna2.straw.page/">→ kuna2.straw.page</a> 　✦　<a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">→ colour my tree ♡</a><br>
+  <a href="https://kunakunakuna.straw.page/">→ (olde) strawpage</a>
 </p>
 
 <p align="center">
