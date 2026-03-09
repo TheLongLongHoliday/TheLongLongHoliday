@@ -1,32 +1,62 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/aKCT6IoXi1gAAAAC/the-long-long-holiday-les-grandes-grandes-vacances.gif" width="180"/>
+  <img src="https://64.media.tumblr.com/cd6dce72c02d9968ffd8116a6270b50a/e85fd39a47e9cb1a-f2/s1280x1920/6c7e59b98be6d066b88bd8c47cd51b0896058cea.pnj">
 </p>
 
-<h1 align="center">hi... (˶ᵔ ᵕ ᵔ˶)</h1>
+<h1 align="center">˚₊‧꒰ა 𝘩𝘪... (˶ᵔ ᵕ ᵔ˶) ໒꒱ ‧₊˚</h1>
 
 <p align="center">
-  <strong>𝘏𝘪, 𝘐'𝘮 $${\color{orange} Kuna!} $$ 𝘐 𝘢𝘭𝘮𝘰𝘴𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺 𝘗𝘛, 𝘸2𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦</strong><br><br>
+  𝘏𝘪, 𝘐'𝘮 $${\color{orange} Kuna!} $$ 𝘐 𝘢𝘭𝘮𝘰𝘴𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺 𝘗𝘛, 𝘸2𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
+</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/3c204e0416b05774f1954728eb3754e8/cf3b10b9ee0f99e2-c6/s100x200/66a89c321170cb3e0aa30e5086d6fd5fbca5ff56.pnj">
+  <img src="https://64.media.tumblr.com/dbe75338648f6ae1c03faadbb9ab9cfc/74d8ec574a2cc5cf-a7/s100x200/bca0ea24b8496f882b2e2a9dad809890a015ac9f.pnj">
+  <img src="https://64.media.tumblr.com/d6b504abaedd91e238f8a390d3c30dac/3ea5618b8e68d498-e9/s100x200/75c44eb5fd7c61771fc323b2ee00253a49d120dd.pnj">
+</p>
+<p align="center">
   sign my stuff please ! (,,>ヮ<,,)! ...I miss my old account </3
 </p>
 
 <p align="center">
-  <a href="https://kuna.atabook.org/">→ kuna.atabook.org</a> 　✦　<a href="https://kunaland.straw.page">→ (MAIN) kunaland.straw.page</a><br>
-  <a href="https://kuna2.straw.page/">→ kuna2.straw.page</a> 　✦　<a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">→ colour my tree ♡</a><br>
-  <a href="https://kunakunakuna.straw.page/">→ (olde) strawpage</a>
+  <a href="https://kunaland.straw.page">
+    <img src="https://img.shields.io/badge/main%20hub-kunaland.straw.page-FF69B4?style=for-the-badge&logoColor=white&logo=react" alt="main">
+  </a>
+  　
+  <a href="https://kuna.atabook.org/">
+    <img src="https://img.shields.io/badge/kuna.atabook.org-9B59B6?style=for-the-badge&logoColor=white" alt="atabook">
+  </a>
+</p>
+
+<p align="center">
+  <a href="https://kuna2.straw.page/">
+    <img src="https://img.shields.io/badge/kuna2.straw.page-2ECC71?style=for-the-badge&logoColor=white" alt="kuna2">
+  </a>
+  　
+  <a href="https://kunakunakuna.straw.page/">
+    <img src="https://img.shields.io/badge/old%20straw-kunakunakuna-95A5A6?style=for-the-badge&logoColor=white" alt="old">
+  </a>
+  　
+  <a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">
+    <img src="https://img.shields.io/badge/colour%20my%20tree-FF1493?style=for-the-badge&logoColor=white&logo=heart" alt="tree">
+  </a>
 </p>
 
 <p align="center">
   <i>········· ♡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ ♡ ·········</i>
 </p>
-<br></br>
-<details align="center">
-<summary>$${\color{yellow}current} $$ $${\color{yellow}hyperfixations} $$</summary>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/9d68f853-91bc-4147-bd2d-7fa65b9a541b">
+</p>
 
-ʜᴇᴛᴀʟɪᴀ • ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ • ʙʙᴄ ɢʜᴏꜱᴛꜱ • ɴᴀᴘᴏʟᴇᴏɴ • ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
+<p align="center">
+  <strong>$${\color{yellow}Current} $$ $${\color{yellow}Hyperfixations:} $$</strong><br>
+  ʜᴇᴛᴀʟɪᴀ • ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ • ʙʙᴄ ɢʜᴏꜱᴛꜱ • ɴᴀᴘᴏʟᴇᴏɴ • ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
+</p>
 
-</details>
 <p align="center">
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/256bf7c5cf2bfa9fa3d94645128b6238/f66ab53a16f5f7f8-34/s1280x1920/6d65a2c981b85bca801bcd7357cef3f86ef229ae.pnj">
 </p>
 
 <p align="center">
@@ -35,7 +65,21 @@
 </p>
 
 <p align="center">
-  <br><br>
+  <img src="https://64.media.tumblr.com/42f5b011b4add3977359241df6b70e98/9fda1f7a9ec4ddc1-4b/s75x75_c1/16b8506669a065bed14e27dba3570f5069e21aa9.pnj">
+  <img src="https://64.media.tumblr.com/1e5984ffa36e6c6d8a999048cfb78052/9fda1f7a9ec4ddc1-0c/s75x75_c1/ce452f840a3ef607974ff35f425f29e85d5c6d3a.pnj">
+  <img src="https://64.media.tumblr.com/b0771fdf0eef6c579dade26fbe72f821/9fda1f7a9ec4ddc1-0c/s75x75_c1/4bab5272b5ae582b6bb34d919944848dffdf5513.pnj">
+  <img src="https://64.media.tumblr.com/f60c85765ee0551ca98624e3f78a5f19/9fda1f7a9ec4ddc1-3e/s75x75_c1/9ae634932c581aa5a8b2916422a59709e9a11ab2.pnj">
+  <img src="https://64.media.tumblr.com/25e1ce05f9fef276951812dc0969ef94/9fda1f7a9ec4ddc1-de/s75x75_c1/fcacc521388ef0891c9838ad54c75725a366653c.pnj">
+  <img src="https://64.media.tumblr.com/c7564f6be57295000ba797063149b3c4/9fda1f7a9ec4ddc1-fb/s75x75_c1/f158f5c07f680026ebc64f5aadfb91070fbdf930.pnj">
+  <img src="https://64.media.tumblr.com/762febfef8738de6f615275eb4646b2b/9fda1f7a9ec4ddc1-19/s75x75_c1/59679dfeecad11f13021fb82f81bd9f112f40afa.pnj">
+  <img src="https://64.media.tumblr.com/4b55fc09f57da7d4b64f553648d46739/9fda1f7a9ec4ddc1-9f/s75x75_c1/34178bcfd7a09c852bf08c7f5c7d3c17a5cb7144.pnj">
+  <img src="https://64.media.tumblr.com/61de90dcfa0987f54a28395dc67854be/9fda1f7a9ec4ddc1-e0/s75x75_c1/951dd841fa3291be76968e81d3fd961dc2c7874d.pnj">
+  <img src="https://64.media.tumblr.com/280aa3ca87e4bed5aebb7a01aac8f066/9fda1f7a9ec4ddc1-12/s75x75_c1/d67f9028182f5f85c03e280a112f4b9f6c234789.pnj">
+  <img src="https://64.media.tumblr.com/abfe1bb2da56d00d434592dfb463896e/9fda1f7a9ec4ddc1-fd/s75x75_c1/df213744faa22ad5b9c1372e6145e4056bba5845.pnj">
+  <img src="https://64.media.tumblr.com/9507e20e82076db55c1898855d0a1564/9fda1f7a9ec4ddc1-b7/s75x75_c1/34f55e70428e313bffb2d03384cb67ef440d1169.pnj">
+</p>
+
+<p align="center">
   <sub>[ALFRED] whispers: Whats the air got that i dont have</sub>
 </p>
 
@@ -157,3 +201,11 @@
   <img width="110" alt="name" src="https://64.media.tumblr.com/2509fbe9288bca8e4f5f6a556a54eb90/771c0ec009df4ff4-15/s250x400/e8520a419005dd4ae310a2f8ef53a637c95f45d7.gifv" />
   <img width="110" alt="name" src="https://64.media.tumblr.com/1ba8acadf93bdf3b77ca962a5b808918/f85179521e399f20-41/s250x400/45a4e4cb552291d45a09858b5c8f741b43a59cbb.gifv" />
 </div>
+
+<br>
+<p align="center">
+  <sub>ᴍᴏᴄʜɪꜱ ꜰʀᴏᴍ:</sub>
+  <a href="https://mochidex.fandom.com/wiki/Mochidex_Wiki"><br>
+    <br><img src="https://img.shields.io/badge/Mochidex-2ECC71?style=for-the-badge&logoColor=white" alt="Mochidex">
+  </a>
+</p>
