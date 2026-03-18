@@ -5,7 +5,6 @@
   <img src="https://64.media.tumblr.com/29350b714c5a0945c98673f7baef2673/88b44081e41d0816-eb/s250x400/4577a04420ffb3ec8a4cda6f60c84d0f5a4ea941.pnj">
   <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="10%">
   <img src="https://64.media.tumblr.com/5c27aaaa85defa69afc3dfc63291ba22/2d1809cb0a3c780e-cc/s1280x1920/0c851df029388faee5e77c206280441952102dc6.png" width="13%">
-  <img src="https://64.media.tumblr.com/31a9a1ff43813e0c4aa14431aad5b1e7/tumblr_pwi8zlyjom1tuqmn4o1_1280.png" width="13%">
   <br><p align="center"><b>❤︎ @soukeyeeee @witchinghourx @Codedsystemzz ❤︎</b></p>
   <p align="center">𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 ♡︎</p>
 </p>
