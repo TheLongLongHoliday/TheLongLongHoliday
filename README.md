@@ -1,62 +1,50 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/cd6dce72c02d9968ffd8116a6270b50a/e85fd39a47e9cb1a-f2/s1280x1920/6c7e59b98be6d066b88bd8c47cd51b0896058cea.pnj">
+  <img src="https://64.media.tumblr.com/9bdb4aed7c9f8c6fba9a45e18b6284dc/b84211060949951e-f9/s1280x1920/c781bd44d22024a79e92c8e48d8a80916d06521d.png" width="13%">
+  <img src="https://64.media.tumblr.com/eb6a62787e430d4aa29910bf18a55e7f/cc4784e973c278d6-a9/s1280x1920/7d2dda56ca7d06977fa231715205be26302e71f9.png" width="13%">
+  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="10%">
+  <img src="https://64.media.tumblr.com/29350b714c5a0945c98673f7baef2673/88b44081e41d0816-eb/s250x400/4577a04420ffb3ec8a4cda6f60c84d0f5a4ea941.pnj">
+  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="10%">
+  <img src="https://64.media.tumblr.com/5c27aaaa85defa69afc3dfc63291ba22/2d1809cb0a3c780e-cc/s1280x1920/0c851df029388faee5e77c206280441952102dc6.png" width="13%">
+  <img src="https://64.media.tumblr.com/31a9a1ff43813e0c4aa14431aad5b1e7/tumblr_pwi8zlyjom1tuqmn4o1_1280.png" width="13%">
+  <br><p align="center"><b>❤︎ @soukeyeeee @witchinghourx @Codedsystemzz ❤︎</b></p>
+  <p align="center">𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 ♡︎</p>
 </p>
 
-<h1 align="center">˚₊‧꒰ა 𝘩𝘪... (˶ᵔ ᵕ ᵔ˶) ໒꒱ ‧₊˚</h1>
-
 <p align="center">
+  <img src="https://64.media.tumblr.com/256bf7c5cf2bfa9fa3d94645128b6238/f66ab53a16f5f7f8-34/s1280x1920/6d65a2c981b85bca801bcd7357cef3f86ef229ae.pnj">
+</p>
+
+<br><p align="center">
   𝘏𝘪, 𝘐'𝘮 $${\color{orange} Kuna!} $$ 𝘐 𝘢𝘭𝘮𝘰𝘴𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺 𝘗𝘛, 𝘸2𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
-</p>
-<p align="center">
-  <img src="https://64.media.tumblr.com/3c204e0416b05774f1954728eb3754e8/cf3b10b9ee0f99e2-c6/s100x200/66a89c321170cb3e0aa30e5086d6fd5fbca5ff56.pnj">
-  <img src="https://64.media.tumblr.com/dbe75338648f6ae1c03faadbb9ab9cfc/74d8ec574a2cc5cf-a7/s100x200/bca0ea24b8496f882b2e2a9dad809890a015ac9f.pnj">
-  <img src="https://64.media.tumblr.com/d6b504abaedd91e238f8a390d3c30dac/3ea5618b8e68d498-e9/s100x200/75c44eb5fd7c61771fc323b2ee00253a49d120dd.pnj">
-</p>
-<p align="center">
-  sign my stuff please ! (,,>ヮ<,,)! ...I miss my old account </3
 </p>
 
 <p align="center">
   <a href="https://kunaland.straw.page">
-    <img src="https://img.shields.io/badge/main%20hub-kunaland.straw.page-FF69B4?style=for-the-badge&logoColor=white&logo=react" alt="main">
+    <img src="https://img.shields.io/badge/main%20hub-kunaland.straw.page-DBB38F?style=for-the-badge&logoColor=white&logo=react" alt="main">
   </a>
   　
   <a href="https://kuna.atabook.org/">
-    <img src="https://img.shields.io/badge/kuna.atabook.org-9B59B6?style=for-the-badge&logoColor=white" alt="atabook">
+    <img src="https://img.shields.io/badge/kuna.atabook.org-DBB38F?style=for-the-badge&logoColor=white" alt="atabook">
   </a>
 </p>
 
 <p align="center">
   <a href="https://kuna2.straw.page/">
-    <img src="https://img.shields.io/badge/kuna2.straw.page-2ECC71?style=for-the-badge&logoColor=white" alt="kuna2">
+    <img src="https://img.shields.io/badge/kuna2.straw.page-DBB38F?style=for-the-badge&logoColor=white" alt="kuna2">
   </a>
   　
   <a href="https://kunakunakuna.straw.page/">
-    <img src="https://img.shields.io/badge/old%20straw-kunakunakuna-95A5A6?style=for-the-badge&logoColor=white" alt="old">
+    <img src="https://img.shields.io/badge/old%20straw-kunakunakuna-DBB38F?style=for-the-badge&logoColor=white" alt="old">
   </a>
   　
   <a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">
-    <img src="https://img.shields.io/badge/colour%20my%20tree-FF1493?style=for-the-badge&logoColor=white&logo=heart" alt="tree">
+    <img src="https://img.shields.io/badge/colour%20my%20tree-DBB38F?style=for-the-badge&logoColor=white&logo=heart" alt="tree">
   </a>
 </p>
 
-<p align="center">
-  <i>········· ♡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ ♡ ·········</i>
-</p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/9d68f853-91bc-4147-bd2d-7fa65b9a541b">
-</p>
-
-<p align="center">
-  <strong>$${\color{yellow}Current} $$ $${\color{yellow}Hyperfixations:} $$</strong><br>
-  ʜᴇᴛᴀʟɪᴀ • ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ • ʙʙᴄ ɢʜᴏꜱᴛꜱ • ɴᴀᴘᴏʟᴇᴏɴ • ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
-</p>
-
-<p align="center">
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-</p>
-<p align="center">
-  <img src="https://64.media.tumblr.com/256bf7c5cf2bfa9fa3d94645128b6238/f66ab53a16f5f7f8-34/s1280x1920/6d65a2c981b85bca801bcd7357cef3f86ef229ae.pnj">
+<br><p align="center">
+  $${\color{orange}Hyperfixations:} $$
+  <br>ʜᴇᴛᴀʟɪᴀ • ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ • ʙʙᴄ ɢʜᴏꜱᴛꜱ • ɴᴀᴘᴏʟᴇᴏɴ • ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
 </p>
 
 <p align="center">
@@ -79,11 +67,15 @@
   <img src="https://64.media.tumblr.com/9507e20e82076db55c1898855d0a1564/9fda1f7a9ec4ddc1-b7/s75x75_c1/34f55e70428e313bffb2d03384cb67ef440d1169.pnj">
 </p>
 
-<p align="center">
+<div align="center">
+  <p align="center">
+  <img src="https://64.media.tumblr.com/40bab85d00567fe2df68059e209e7766/e4a361af18e58cbe-3d/s250x400/b0411d46493c1fecccb7812038eeeb345faeefd0.pnj" width="20%">
+  <img src="https://64.media.tumblr.com/ac89285f84012736426699eac196b4cd/602ab97dd2331dc2-92/s1280x1920/f16967b687cbf0fe41512181498f19289ed6356f.png" width="50%">
+  <img src="https://64.media.tumblr.com/40bab85d00567fe2df68059e209e7766/e4a361af18e58cbe-3d/s250x400/b0411d46493c1fecccb7812038eeeb345faeefd0.pnj" width="20%">
+</p>
+  <p align="center">
   <sub>[ALFRED] whispers: Whats the air got that i dont have</sub>
 </p>
-
-<div align="center">
   <b><i>Stamps <33</i></b>
 </div>
     
@@ -202,10 +194,24 @@
   <img width="110" alt="name" src="https://64.media.tumblr.com/1ba8acadf93bdf3b77ca962a5b808918/f85179521e399f20-41/s250x400/45a4e4cb552291d45a09858b5c8f741b43a59cbb.gifv" />
 </div>
 
-<br>
+<br><p align="center">
+  <img src="https://64.media.tumblr.com/11694a46dc6bd0e472b71112a9416143/tumblr_inline_mxuagfpW941rrry1n.gif">
+  <br>𖹭 𝘐 𝘥𝘰𝘯'𝘵 𝘴𝘩𝘪𝘱 𝘢𝘯𝘺𝘰𝘯𝘦 𝘪𝘯 𝘏𝘦𝘵𝘢𝘭𝘪𝘢 𝘣𝘶𝘵 𝘢𝘯𝘺 𝘯𝘰𝘯-𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘢𝘵𝘪𝘤 𝘴𝘩𝘪𝘱 𝘪𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 ꉂ(˵˃ ᗜ ˂˵)
+</p>
+
+
+<p align="center">
+  °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
+</p>
 <p align="center">
   <sub>ᴍᴏᴄʜɪꜱ ꜰʀᴏᴍ:</sub>
   <a href="https://mochidex.fandom.com/wiki/Mochidex_Wiki"><br>
-    <br><img src="https://img.shields.io/badge/Mochidex-2ECC71?style=for-the-badge&logoColor=white" alt="Mochidex">
+    <br><img src="https://img.shields.io/badge/Mochidex-E6C4A5?style=for-the-badge&logoColor=white" alt="Mochidex">
   </a>
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/3d5d274594e7133ec367732ab04c6b87/e1aed535dca23fc5-25/s1280x1920/40b7546d21d9730be37b7cbd9ddd112faeccfa59.pnj" width="10%">
+  <img src="https://64.media.tumblr.com/d8b4191561b38c65c6f36c23cffc7c7a/tumblr_inline_n26vjuByMr1rrry1n.gif" width="20%">
+  <img src="https://64.media.tumblr.com/33a31c460e482f08659ca8f2fac7e51a/e1aed535dca23fc5-fe/s1280x1920/358823c05a1216dbe2fd3e6aac5b89657694dd66.pnj" width="10%">
 </p>
