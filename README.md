@@ -1,10 +1,11 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/9bdb4aed7c9f8c6fba9a45e18b6284dc/b84211060949951e-f9/s1280x1920/c781bd44d22024a79e92c8e48d8a80916d06521d.png" width="13%">
   <img src="https://64.media.tumblr.com/eb6a62787e430d4aa29910bf18a55e7f/cc4784e973c278d6-a9/s1280x1920/7d2dda56ca7d06977fa231715205be26302e71f9.png" width="13%">
-  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="10%">
+  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="8%">
   <img src="https://64.media.tumblr.com/29350b714c5a0945c98673f7baef2673/88b44081e41d0816-eb/s250x400/4577a04420ffb3ec8a4cda6f60c84d0f5a4ea941.pnj">
-  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="10%">
+  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="8%">
   <img src="https://64.media.tumblr.com/5c27aaaa85defa69afc3dfc63291ba22/2d1809cb0a3c780e-cc/s1280x1920/0c851df029388faee5e77c206280441952102dc6.png" width="13%">
+  <img src="https://64.media.tumblr.com/67885d24862ad0be296050bd6b5d9b7d/1a9378f020e02789-18/s1280x1920/195769d1e52dab1da9a1b3567a58d035bbdfdf3f.png" width="13%">
   <br><p align="center"><b>❤︎ @soukeyeeee @witchinghourx @Codedsystemzz ❤︎</b></p>
   <p align="center">𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 ♡︎</p>
 </p>
