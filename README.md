@@ -1,8 +1,4 @@
-
-
 <p align="center">
-  <img src="https://64.media.tumblr.com/b9c8b410056a3301cf5123a214ad15ff/85c2a7eed0417074-df/s1280x1920/393415f1427bc8d5990009bc82b085e935a07f6b.pnj">
-  <br>
   <img src="https://64.media.tumblr.com/ef13facb580dd18fab2bed7091d61b20/f4cf3be3a03a39af-60/s250x400/4bd4d89cee9621957727a0071f2b838cc40b36b9.gifv" width="10%">
   
   <a href="https://github.com/witchinghourx">
