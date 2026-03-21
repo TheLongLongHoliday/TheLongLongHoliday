@@ -1,21 +1,35 @@
+
+
 <p align="center">
-  <img src="https://64.media.tumblr.com/9bdb4aed7c9f8c6fba9a45e18b6284dc/b84211060949951e-f9/s1280x1920/c781bd44d22024a79e92c8e48d8a80916d06521d.png" width="12%">
-  <img src="https://64.media.tumblr.com/eb6a62787e430d4aa29910bf18a55e7f/cc4784e973c278d6-a9/s1280x1920/7d2dda56ca7d06977fa231715205be26302e71f9.png" width="12%">
-  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="8%">
-  <img src="https://64.media.tumblr.com/29350b714c5a0945c98673f7baef2673/88b44081e41d0816-eb/s250x400/4577a04420ffb3ec8a4cda6f60c84d0f5a4ea941.pnj">
-  <img src="https://64.media.tumblr.com/c592cab38562c990b56faed22e78ecab/e4a361af18e58cbe-a2/s250x400/f4af385f6da09f86402b7d1b0f67444cef66934d.pnj" width="8%">
-  <img src="https://64.media.tumblr.com/5c27aaaa85defa69afc3dfc63291ba22/2d1809cb0a3c780e-cc/s1280x1920/0c851df029388faee5e77c206280441952102dc6.png" width="12%">
-  <img src="https://64.media.tumblr.com/67885d24862ad0be296050bd6b5d9b7d/1a9378f020e02789-18/s1280x1920/195769d1e52dab1da9a1b3567a58d035bbdfdf3f.png" width="12%">
-  <br><p align="center"><b>❤︎ @soukeyeeee @witchinghourx @Codedsystemzz ❤︎</b></p>
-  <p align="center">𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 ♡︎</p>
+  <img src="https://64.media.tumblr.com/b9c8b410056a3301cf5123a214ad15ff/85c2a7eed0417074-df/s1280x1920/393415f1427bc8d5990009bc82b085e935a07f6b.pnj">
+  <br>
+  <img src="https://64.media.tumblr.com/ef13facb580dd18fab2bed7091d61b20/f4cf3be3a03a39af-60/s250x400/4bd4d89cee9621957727a0071f2b838cc40b36b9.gifv" width="10%">
+  
+  <a href="https://github.com/witchinghourx">
+    <img src="https://github.com/user-attachments/assets/42d97283-67ee-4814-951c-657985a8f82c" width="20%">
+  </a>
+  
+  <a href="https://github.com/Codedsystemzz">
+    <img src="https://github.com/user-attachments/assets/da6b5767-ae91-44ae-98ea-8c4d2efa8b41" width="20%">
+  </a>
+  
+  <a href="https://github.com/soukeyeeee">
+    <img src="https://github.com/user-attachments/assets/36206fea-2858-4b52-b275-60dfc5ae439c" width="20%">
+  </a>
+  
+  <img src="https://64.media.tumblr.com/9bb1fe993048a97ce7f620778f066bca/f4cf3be3a03a39af-41/s250x400/bf1ae20030b061af3f4a87809195d98ef2d54643.gifv" width="10%">
+  <br>
+  <p align="center"><b>❤︎ @witchinghourx @Codedsystemzz @soukeyeeee ❤︎</b></p>
+  <p align="center">$${\color{lightgreen}✦•┈๑⋅⋯ \space 𝘐 \space 𝘭𝘰𝘷𝘦 \space 𝘮𝘺 \space 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 \space ♡︎⋯⋅๑┈•✦}$$</p>
+</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/4803e8df75c5f4a293dd2d70037b6a77/d2053116c06b3cb2-2e/s250x400/897986afa54568c23dbb11aa7cd2516afd6e8730.pnj" width="5%">
+  <img src="https://64.media.tumblr.com/6819dea5ad61790709121a34c6855270/d2053116c06b3cb2-6b/s250x400/05d8fd52574f537ce488c4cfd4bf7d8203ec4038.pnj" width="5%">
+  <img src="https://64.media.tumblr.com/5ef611488062ab5b63a6f58422ed02a2/f7b6a7c2d3040978-55/s250x400/330ddf207f31a644c3cf5341dacc6cf82e64feae.pnj" width="5%">
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/256bf7c5cf2bfa9fa3d94645128b6238/f66ab53a16f5f7f8-34/s1280x1920/6d65a2c981b85bca801bcd7357cef3f86ef229ae.pnj">
-</p>
-
-<br><p align="center">
-  𝘏𝘪, 𝘐'𝘮 $${\color{orange} Kuna!} $$ 𝘐 𝘢𝘭𝘮𝘰𝘴𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺 𝘗𝘛, 𝘸2𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
+  𝘏𝘪, 𝘐'𝘮 $${\color{lightgreen} Kuna!} $$ 𝘐 𝘢𝘭𝘮𝘰𝘴𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘭𝘢𝘺 𝘗𝘛, 𝘸2𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
 </p>
 
 <p align="center">
@@ -43,13 +57,14 @@
 </p>
 
 <br><p align="center">
-  $${\color{orange}Hyperfixations:} $$
-  <br>ʜᴇᴛᴀʟɪᴀ • ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ • ʙʙᴄ ɢʜᴏꜱᴛꜱ • ɴᴀᴘᴏʟᴇᴏɴ • ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
+  $${\color{lightgreen}Current \space Hyperfixations:} $$
+  <br>ʜᴇᴛᴀʟɪᴀ $${\color{lightgreen}•}$$ ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ $${\color{lightgreen}•}$$ ʙʙᴄ ɢʜᴏꜱᴛꜱ $${\color{lightgreen}•}$$ ɴᴀᴘᴏʟᴇᴏɴ $${\color{lightgreen}•}$$ ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
 </p>
 
 <p align="center">
   <br><br>
-  $${\color{orange} dni:} $$ ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ/ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ (ᴜꜱᴜᴋ/ꜱᴘᴀᴍᴀɴᴏ ɪɴᴄʟᴜᴅᴇᴅ) ┆ ʀᴀᴄɪꜱᴛꜱ ┆ ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ/ʜᴏᴍᴏᴘʜᴏʙᴇꜱ ┆ ᴛʀᴜᴍᴘɪᴇꜱ
+  $${\color{orange} do \space not \space interact:} $$
+  <br>ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ/ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ (ᴜꜱᴜᴋ/ꜱᴘᴀᴍᴀɴᴏ ɪɴᴄʟᴜᴅᴇᴅ) ┆ ʀᴀᴄɪꜱᴛꜱ ┆ ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ/ʜᴏᴍᴏᴘʜᴏʙᴇꜱ ┆ ᴛʀᴜᴍᴘɪᴇꜱ
 </p>
 
 <p align="center">
@@ -201,7 +216,7 @@
 
 
 <p align="center">
-  °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
+  $${\color{lightgreen}°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･}$$
 </p>
 <p align="center">
   <sub>ᴍᴏᴄʜɪꜱ ꜰʀᴏᴍ:</sub>
