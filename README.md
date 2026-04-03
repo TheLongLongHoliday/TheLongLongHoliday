@@ -54,7 +54,7 @@
 
 <br><p align="center">
   $${\color{lightgreen}Current \space Hyperfixations:} $$
-  <br>ʜᴇᴛᴀʟɪᴀ $${\color{lightgreen}•}$$ ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ $${\color{lightgreen}•}$$ ʙʙᴄ ɢʜᴏꜱᴛꜱ $${\color{lightgreen}•}$$ ɴᴀᴘᴏʟᴇᴏɴ $${\color{lightgreen}•}$$ ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ
+  <br>ʜᴇᴛᴀʟɪᴀ $${\color{lightgreen}•}$$ ᴛʜᴇ ʟᴏɴɢ ʟᴏɴɢ ʜᴏʟɪᴅᴀʏ $${\color{lightgreen}•}$$ ʙʙᴄ ɢʜᴏꜱᴛꜱ $${\color{lightgreen}•}$$ ɴᴀᴘᴏʟᴇᴏɴ $${\color{lightgreen}•}$$ ɴɪɢʜᴛ ᴀᴛ ᴛʜᴇ ᴍᴜꜱᴇᴜᴍ $${\color{lightgreen}•}$$ ᴡᴇꜱ ᴀɴᴅᴇʀꜱᴏɴ
 </p>
 
 <p align="center">
