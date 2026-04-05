@@ -43,10 +43,6 @@
     <img src="https://img.shields.io/badge/kuna2.straw.page-DBB38F?style=for-the-badge&logoColor=white" alt="kuna2">
   </a>
   　
-  <a href="https://kunakunakuna.straw.page/">
-    <img src="https://img.shields.io/badge/old%20straw-kunakunakuna-DBB38F?style=for-the-badge&logoColor=white" alt="old">
-  </a>
-  　
   <a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">
     <img src="https://img.shields.io/badge/colour%20my%20tree-DBB38F?style=for-the-badge&logoColor=white&logo=heart" alt="tree">
   </a>
