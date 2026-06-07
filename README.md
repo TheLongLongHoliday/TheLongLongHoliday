@@ -29,22 +29,22 @@
 </p>
 
 <p align="center">
-  <a href="https://kunaland.straw.page">
-    <img src="https://img.shields.io/badge/main%20hub-kunaland.straw.page-DBB38F?style=for-the-badge&logoColor=white&logo=react" alt="main">
+  <a href="https://major-tom.straw.page">
+    <img src="https://img.shields.io/badge/main%20hub-Major Tom.straw.page-DBD88F?style=for-the-badge&logoColor=white&logo=react" alt="main">
   </a>
   　
   <a href="https://kuna.atabook.org/">
-    <img src="https://img.shields.io/badge/kuna.atabook.org-DBB38F?style=for-the-badge&logoColor=white" alt="atabook">
+    <img src="https://img.shields.io/badge/kuna.atabook.org-99D1C0?style=for-the-badge&logoColor=white" alt="atabook">
   </a>
 </p>
 
 <p align="center">
-  <a href="https://kuna2.straw.page/">
-    <img src="https://img.shields.io/badge/kuna2.straw.page-DBB38F?style=for-the-badge&logoColor=white" alt="kuna2">
+  <a href="https://kunaland.straw.page">
+    <img src="https://img.shields.io/badge/kunaland.straw.page-DBB38F?style=for-the-badge&logoColor=white">
   </a>
   　
   <a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">
-    <img src="https://img.shields.io/badge/colour%20my%20tree-DBB38F?style=for-the-badge&logoColor=white&logo=heart" alt="tree">
+    <img src="https://img.shields.io/badge/colour%20my%20tree-D3E08A?style=for-the-badge&logoColor=white&logo=heart" alt="tree">
   </a>
 </p>
 
