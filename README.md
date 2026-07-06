@@ -10,6 +10,9 @@
  <p align="center">
   <p align="center">$${\color{orange}✦•┈๑⋅⋯ \space 𝘏𝘪, \space 𝘐´𝘮 \space 𝘒𝘶𝘯𝘢 \space ⋯⋅๑┈•✦}$$</p>
 </p>
+<p align="center">
+ ꒰ <a href="https://kunainterests.straw.page">ᴀʟʟ ᴍʏ ɪɴᴛᴇʀᴇꜱᴛꜱ</a> ꒱
+</p>
 
 <p align="center">
   <a href="https://major-tom.straw.page">
@@ -32,7 +35,7 @@
 
 <p align="center">
   $${\color{orange} do \space not \space interact:} $$
-  <br> <a href="https://basic-dni.crd.co/">𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a>
+  <br> ꒰ <a href="https://basic-dni.crd.co/">𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> ꒱
 </p>
 
 
@@ -169,7 +172,7 @@
 <a href="https://github.com/soukeyeeee">
   <img src="https://64.media.tumblr.com/e631e9564cb4b4e06ca93977a31027b2/fd944cf6f6730501-17/s250x400/7df12e301e6df79b33d0be7fd5f9c70b0b9bf0e7.pnj" width="5%" />
 </a>
-<a href="https://github.com/Kilgravesdoll">
+<a href="https://github.com/Codedsystemzz">
   <img src="https://64.media.tumblr.com/6a8961b34951d03b270b0e489edeac3d/fd944cf6f6730501-f8/s250x400/5dfda9238a1691d832d2d2bc5cf77b695265a143.pnj" width="5%" />
 </a>
   <p align="center">$$\color{orange}{\text{✦ 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴 𝘢𝘴 𝘵𝘩𝘦𝘺'𝘳𝘦 𝘢 𝘴𝘰𝘶𝘳𝘤𝘦 𝘰𝘧 𝘤𝘰𝘮𝘧𝘰𝘳𝘵 ✦}}$$
