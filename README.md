@@ -187,3 +187,7 @@
   $${\color{yellow} THANK \space YOU \space :3} $$
   <br> <a href="https://github.com/title-town">@title-town</a>
 </p>
+
+<p align="center">
+  <br> ꒰ <a href="https://www.tumblr.com/blanc-ci/776955709618307072/i-am-entirely-conscious-doctor-im-simply?source=share&utm_source=Pinterest&utm_medium=organic">𝘱𝘧𝘱 𝘤𝘳𝘦𝘥𝘪𝘵</a> ꒱
+</p>
