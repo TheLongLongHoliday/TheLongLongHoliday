@@ -14,7 +14,7 @@
     <img src="https://github.com/user-attachments/assets/819b6a35-3c97-41f6-b558-733ddd359ac6" width="15%"/>
   </a>
   &nbsp;&nbsp;⸝⸝&nbsp;&nbsp;
-  <a href="https://kuna.ataook.org/">
+  <a href="https://kuna.atabook.org/">
     <img src="https://github.com/user-attachments/assets/474e7544-d90d-42e9-be7d-2459c4c7d00a" width="15%"/>
   </a>
   &nbsp;&nbsp;⸝⸝&nbsp;&nbsp;
