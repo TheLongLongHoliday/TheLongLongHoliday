@@ -39,6 +39,9 @@
 <p align="center">
   ⸝⸝‎ ‎ ⸝⸝‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ $${\color{BurlyWood}the \space 𝚐𝚛𝚊𝚙𝚑𝚒𝚌𝚜 \space 𝚊𝚛𝚎 \space 𝙽𝙾𝚃 \space 𝚖𝚒𝚗𝚎,} $$‎ <a href="https://www.tumblr.com/soongtypecreative">this cool person</a> $${\color{BurlyWood}\space 𝚖𝚊𝚍𝚎 \space 𝚝𝚑𝚎𝚖!! \space :3} $$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎⸝⸝‎ ‎ ⸝⸝‎
 </p>
+<p align="center">
+  ⸝⸝‎ ‎ ⸝⸝‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ $${\color{BurlyWood}𝚝𝚑𝚊𝚗𝚔 \space 𝚢𝚘𝚞} $$‎ <a href="https://github.com/title-town">title-town</a> $${\color{BurlyWood}:3} $$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎⸝⸝‎ ‎ ⸝⸝‎
+</p>
 
 <div align="center">
   <p align="center">
