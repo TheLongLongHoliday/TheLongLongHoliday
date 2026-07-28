@@ -11,13 +11,13 @@
 <div style="display: flex; flex-wrap: nowrap; overflow-x: auto; gap: 10px; align-items: flex-end;">
   <div align="center">
   <a href="https://kunainterests.straw.page/">
-    <img src="https://github.com/user-attachments/assets/819b6a35-3c97-41f6-b558-733ddd359ac6" width="15%"/>
+    <img src="https://github.com/user-attachments/assets/819b6a35-3c97-41f6-b558-733ddd359ac6" width="11%"/>
   </a>&nbsp;&nbsp;⟢⸝⸝&nbsp;&nbsp;
   <a href="https://kuna.atabook.org/">
-    <img src="https://github.com/user-attachments/assets/474e7544-d90d-42e9-be7d-2459c4c7d00a" width="15%"/>
+    <img src="https://github.com/user-attachments/assets/474e7544-d90d-42e9-be7d-2459c4c7d00a" width="11%"/>
   </a>&nbsp;&nbsp;⸝⸝⟢&nbsp;&nbsp;
   <a href="https://colormytree.me/2025/01KBK8PCXKKQAD1GJEGKW7FXJR">
-    <img src="https://github.com/user-attachments/assets/ead72678-ce16-4a58-9ac6-6488060105c7" width="15%"/>
+    <img src="https://github.com/user-attachments/assets/ead72678-ce16-4a58-9ac6-6488060105c7" width="11%"/>
   </a>
 </div>
 <p align="center">
@@ -26,7 +26,7 @@
 <br>・・・・・
   <br>
   <a href="https://basic-dni.crd.co/">
-    <img src="https://github.com/user-attachments/assets/73d3d93f-4746-478a-82c8-f6bd5338b7ac" width="12%"/>
+    <img src="https://github.com/user-attachments/assets/73d3d93f-4746-478a-82c8-f6bd5338b7ac" width="10%"/>
   </a>
 </p>
 
