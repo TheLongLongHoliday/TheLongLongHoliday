@@ -10,7 +10,7 @@
 <br>
 
 <p align="center">
-  <a href="https://kunainterests.straw.page/">
+  <a href="https://ltcommanderkuna.straw.page/">
     <img src="https://github.com/user-attachments/assets/819b6a35-3c97-41f6-b558-733ddd359ac6" width="15%"/>
   </a>
   &nbsp;&nbsp;⸝⸝&nbsp;&nbsp;
