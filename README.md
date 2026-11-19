@@ -40,7 +40,7 @@
   ⸝⸝‎ ‎ ⸝⸝‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ $${\color{BurlyWood}the \space 𝚐𝚛𝚊𝚙𝚑𝚒𝚌𝚜 \space 𝚊𝚛𝚎 \space 𝙽𝙾𝚃 \space 𝚖𝚒𝚗𝚎,} $$‎ <a href="https://www.tumblr.com/soongtypecreative">this cool person</a> $${\color{BurlyWood}\space 𝚖𝚊𝚍𝚎 \space 𝚝𝚑𝚎𝚖!! \space :3} $$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎⸝⸝‎ ‎ ⸝⸝‎
 </p>
 <p align="center">
-  ⸝⸝‎ ‎ ⸝⸝‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/Knox-Event">Knox-Event</a>‎ · ‎<a href="https://github.com/THE-TEMPIST">THE-TEMPIST</a> · ‎<a href="https://github.com/title-town">title-town</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⸝⸝‎ ‎ ⸝⸝‎
+  ⸝⸝‎ ‎ ⸝⸝‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/Knox-Event">Knox-Event</a>‎ · ‎<a href="https://github.com/THE-TEMPIST">THE-TEMPIST</a> · ‎<a href="https://github.com/title-town">title-town</a> · ‎<a href="https://github.com/pt-friendships">pt-friendships</a> · ‎<a href="https://github.com/piddlesjet">piddlesjet</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⸝⸝‎ ‎ ⸝⸝‎
 </p>
 
 <div align="center">
